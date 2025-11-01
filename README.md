@@ -19,7 +19,7 @@ Atualmente, meus estudos estão concentrados nos fundamentos essenciais:
 
 | Plataforma | Link |
 | :--- | :--- |
-| **LinkedIn** | [Meu Perfil no LinkedIn](https://www.linkedin.com/in/airton-matos-144...) | *Lembre de completar o link aqui!*
+| **LinkedIn** | [Meu Perfil no LinkedIn](https://www.linkedin.com/in/airton-matos14/) |
 | **E-mail Profissional** | [matos14k@gmail.com](mailto:matos14k@gmail.com) |
 | **Localização** | 📍 Recife, PE, Brasil |
 
